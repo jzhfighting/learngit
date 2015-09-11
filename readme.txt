@@ -11,11 +11,7 @@ Great!
 Fuck
 my god
  HEAD
-what ai
 
-tttnujrhvujhnrovb
-
- dev
 
 
 
