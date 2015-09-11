@@ -10,7 +10,7 @@ YES
 Great!
 Fuck
 my god
-
+what ai
 
 
 
