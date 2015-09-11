@@ -9,5 +9,4 @@ ok
 YES
 Great!
 Fuck
-errjijoi
-okokoko
+
